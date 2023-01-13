@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **ANDROID AND EDITING**
 
-- 📫 How to reach me **gantenggamink@gmail.com**
+- 📫 How to reach me **re44work@gmail.com**
 
 - ⚡ Fun fact **im funny**
 
